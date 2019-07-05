@@ -1,2 +1,2 @@
 # jucelfilipino
-Im filipinoim born in Philippines i live now in America 
+Im filipino im born in Philippines i live now in America 
